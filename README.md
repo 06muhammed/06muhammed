@@ -1,4 +1,4 @@
-- Bismillahirrahmanirrahim.
+- Bismillahirrahmanirrahim
 - Selamun Aleykum, ben Muhammed Emre URAL (@06muhammed)
 - Ben C# ile ilgilenmekteyim.
 - C# üzerinde profesyonel hale gelmeyi hedefliyorum.
