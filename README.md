@@ -1,0 +1,5 @@
+- Bismillahirrahmanirrahim.
+- 👋 Selamun Aleykum, ben Muhammed Emre URAL (@06muhammed)
+- 👀 Ben C# ile ilgilenmekteyim.
+- 🌱 C# detaylarını ve profesyonel hale gelmeyi hedefliyorum.
+- 📫 İrtibat için muhammedemre646@gmail.com adresime mail gönderebilirsiniz.
