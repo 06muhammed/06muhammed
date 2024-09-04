@@ -1,4 +1,3 @@
-- Bismillahirrahmanirrahim
 - Selamun Aleykum, ben Muhammed Emre URAL
 - Web Programlama, Web Tasarım ve Programlama ile ilgilenmekteyim.
 - Belirlemiş olduğum alanlar içerisinde uzman hale gelmeyi hedefliyorum.
