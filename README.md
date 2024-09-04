@@ -1,5 +1,5 @@
 - Bismillahirrahmanirrahim
 - Selamun Aleykum, ben Muhammed Emre URAL
-- Ben Web Programlama, Web Tasarım ve Programlama ile ilgilenmekteyim.
-- Zamane uzmanlarının üzerinde profesyonel hale gelmeyi hedefliyorum.
+- Web Programlama, Web Tasarım ve Programlama ile ilgilenmekteyim.
+- Belirlemiş olduğum alanlar içerisinde uzman hale gelmeyi hedefliyorum.
 - İrtibat için muhammedemre646@gmail.com adresime mail gönderebilirsiniz.
